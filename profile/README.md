@@ -1,1 +1,1 @@
-https://youtu.be/lp-s6h00HTQ?si=rcriuI0UGhXA_Z4e
+![](https://github.com/howmaso/.github/raw/refs/heads/main/osu!mania%20%EF%BD%9C%20Hei%20Shou%20De%20Yu%20Tou%20-%20o%20i%20i%20a%20i%20o%20o%20o%20o%20o%20i%20a%20i%20%5BAndreyChomik's%20Normal%5D%20%5Blp-s6h00HTQ%5D.mp4)
