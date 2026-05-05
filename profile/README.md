@@ -1,6 +1,15 @@
-one day im lowk gonna be employed
-fuck rust (the language) and arch linux
+Hi! I'm howmaso. I hate all Arch users and Rust users. Everyone else is welcome tho.
+<br>
+<br>
 
-https://github.com/user-attachments/assets/136f5d3f-41db-4718-a237-38acb40c8e86
+its just that the world feels so wonderful right now. 
 
-also i stand by this vid https://youtu.be/2qcBUWZjslA (not my vid btw)
+
+throughout heaven and earth, i alone am the **honored one**
+
+Take the amplified and the reversal,
+then smash together those two different expressions of infinity
+to create and push out an imaginary mass
+
+
+$\color{purple}{\text{ Imaginary Technique: Post Nut Clarity }}$
