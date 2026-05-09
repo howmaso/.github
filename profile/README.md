@@ -1,4 +1,4 @@
-Hi! I'm howmaso. I hate all Arch users and Rust users. Everyone else is welcome tho.
+Hi! I'm howmaso. I hate all Arch users and Rust users. Everyone else is welcome tho (unless ur a fed, in which case kys you fucking traitor)
 <br>
 <br>
 
