@@ -13,3 +13,10 @@ to create and push out an imaginary mass
 
 
 $\color{purple}{\text{ Imaginary Technique: Post Nut Clarity }}$
+
+<br>
+<br>
+<br>
+Every day I lose slightly more and more sanity and it feels like brainrot is the only thing keeping me sane anymore
+<br>
+God damn I need to TOUCH GRASS U CANT EVEN GO BACK HOME ONCE UR IN OHIOO ONLY IN OHIO OH OH ONLY IN OHIO OH OH
