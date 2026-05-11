@@ -17,6 +17,4 @@ $\color{purple}{\text{ Imaginary Technique: Post Nut Clarity }}$
 <br>
 <br>
 <br>
-Every day I lose slightly more and more sanity and it feels like brainrot is the only thing keeping me sane anymore
-<br>
-God damn I need to TOUCH GRASS U CANT EVEN GO BACK HOME ONCE UR IN OHIOO ONLY IN OHIO OH OH ONLY IN OHIO OH OH
+WHY THE FUCK AM I GETTING RICKROLLED BY MY MIX... yknow what? Fuck it. IM GONNA VIBE TO THIS. GOTTA MAKE U UNDERSTAND NEVER GONNA GIV EU UP NEVER GONAA LET U DOWN NEVER GONNA RUN ARPUND A DESERT U NEVER G9NNA MAKE U CRY NEVER GONNA SA6 GOODBYE NEVET GONNA TELL AMLIE AJD H7RT U
