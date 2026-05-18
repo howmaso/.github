@@ -1,1 +1,1 @@
-How about we just enjoy the quiet for once?
+A graveyard of ideas and ambition.
